@@ -1,0 +1,1 @@
+# nagoyaboost261024_vercel_mini_hackathon
